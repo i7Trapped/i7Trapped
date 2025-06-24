@@ -8,6 +8,11 @@
 ![1000020727](https://github.com/user-attachments/assets/e181ec91-7340-47c2-89ad-7d37008bd6ab)
 #
 
+  ❆❆❆❆❆❆ ❆❆❆ ❆❆❆ ❆❆❆ ❆❆❆❆❆❆
+   
+![1000020755](https://github.com/user-attachments/assets/13d32bc5-d46e-4529-92da-949de40b9bf9)
+
+
 ![1000020734](https://github.com/user-attachments/assets/37fa2897-7b12-4fe8-bbc8-b067718c328f)
    
 ### A̴̡͇̘̒̔̈́͑̿ċ̶͍͙̇͐̎c̶̛͔̖̮͐́́̄o̴͎̳̣͂͐͜ṃ̵̣͈͇͚͛̒̈́̌̀p̶̹̭̙͈̳̈́͋͋́a̸̠͕͆̆̃͊͝n̸̩̤͎̐͑̾͗̀͜y̶͓̑̋ ̶͔̥̘̜̀͒ṁ̷̼̟͓̤͊̽̕ę̵̫̯͈̑͋̀̑?̷̨̡̣͆͑̐̚̕?
