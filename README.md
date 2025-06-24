@@ -1,16 +1,15 @@
-## Hi there 👋
+> <sup>“Cold, isn't it?<sup/>” -`██████`
+  
+> <sup>“Quite.”<sup/> -`iTrapped`
 
-<!--
-**i7Trapped/i7Trapped** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+`...`
+#
+> [!WARNING]
+![1000020727](https://github.com/user-attachments/assets/e181ec91-7340-47c2-89ad-7d37008bd6ab)
+#
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![1000020734](https://github.com/user-attachments/assets/37fa2897-7b12-4fe8-bbc8-b067718c328f)
+   
+### A̴̡͇̘̒̔̈́͑̿ċ̶͍͙̇͐̎c̶̛͔̖̮͐́́̄o̴͎̳̣͂͐͜ṃ̵̣͈͇͚͛̒̈́̌̀p̶̹̭̙͈̳̈́͋͋́a̸̠͕͆̆̃͊͝n̸̩̤͎̐͑̾͗̀͜y̶͓̑̋ ̶͔̥̘̜̀͒ṁ̷̼̟͓̤͊̽̕ę̵̫̯͈̑͋̀̑?̷̨̡̣͆͑̐̚̕?
+- [ ] yes
+- [ ] no
